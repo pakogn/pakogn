@@ -11,7 +11,7 @@ Reach me at [daniel@garcianoriega.com](mailto:daniel@garcianoriega.com)
 Will be glad to collaborate with you We can help you from idea, to design, development and launching.
 
 
-Firm Owner
+Firm Co-founder
 [Sistemas Punto & Coma](http://sistemaspuntoycoma.com)
 
 
